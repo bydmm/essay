@@ -1,4 +1,4 @@
-The Disintegration and Reestablishment of Society, Part 1
+# The Disintegration and Reestablishment of Society, Part 1
 
 When 10,000 of people travel to the another world, the society is totally collapsed. It's occurring in a recent animation, but it is very similar to that when Hurricane Katrina completely destroyed several states' order in 2005, there is no government, no police and no military.
 

@@ -1,4 +1,4 @@
-Why so many people love watching others playing game?
+# Why so many people love watching others playing game?
 
 Amazon to buy Twitch for $1 Billion, which offer thousands of game videos lives. Previously, there being many followers of Twitch have copy this mode to china. The game videos live is a kind of reality show that an anchor play game when both anchor and pictrue of game are showing.
 
